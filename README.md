@@ -1,1 +1,0 @@
-# snoopyglobal.github.io
